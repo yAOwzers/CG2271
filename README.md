@@ -1,3 +1,3 @@
 # CG2271
 
-<img src="https://imgur.com/gallery/yGSPt.jpg" />
+<img src="https://imgur.com/AruRSrV.jpg" />
